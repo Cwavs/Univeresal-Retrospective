@@ -1,8 +1,3 @@
----
-
-
----
-
 <h1 id="universal-horror-retrospective-part-1---frankenstein">Universal Horror Retrospective: Part 1 - Frankenstein</h1>
 <h2 id="introduction---doctor-who">Introduction - Doctor Who?</h2>
 <p>Those of you who know me are probably aware that I am quite the big Doctor Who fan. I’ve been following the series for about as long as I can remember, I was introduced to it way back when by my Dad, although I’m not so sure how, I’d need to ask him. Suffice to say though, I like the show a lot, my bedroom walls are dressed with some framed posters from an old magazine, and a fantastic pencil drawing we bought on a trip to Whitby one time. <img src="http://www.cwavs.xyz/IC2dVjMFKHfD6wm5.png" alt="Three framed poster featuring (From left to right) The 4th Doctor; The Cyberleader, Miss Hartigan, The 10th Doctor; Sarah Jane Smith, The 11th Doctor, Jo Grant"><img src="http://www.cwavs.xyz/crdcxu3IRbQpRvgK.png" alt="Pencil drawing of the 10th, 11th and 12th Doctors with the Tardis behind them"></p>
